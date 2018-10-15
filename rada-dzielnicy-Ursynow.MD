@@ -95,13 +95,37 @@ coaching)."
 - "Career Goal [..] the possibility of further professional growth by the synergistic use of the experiences within a dynamic organisation"
 
 ## KOMITET WYBORCZY WYBORCÓW KUKIZ'15
-###  Krzysztof Piotr Grybski
+
+### Krzysztof Piotr Grybski
+
+- https://www.linkedin.com/in/krzysztof-grybski/
+- "I spent 3 years working & studying abroad 🇺🇸&🇮🇪 Passionate in Marketing, Cultural Diversity and Organizational Behavior."
+
 ### Katarzyna Elżbieta Adamczyk
+
+*nie znalazłem informacji*
+
 ### Thanh Trung Pham Nguyen
+
+- https://www.linkedin.com/in/thanh-trung-pham-nguyen-a16399aa/
+- "Pasjonat (sic!) branży FMCG i nowych technologii"
+- studiuje na SGH
+
 ### Katarzyna Aneta Janicka
+
+*nie znalazłem informacji*
+
 ### Przemysław Świecki
+
+*nie znalazłem informacji*
+
 ### Milena Kinga Kunicka
+
+*nie znalazłem informacji*
+
 ### Adam Wojciechowski
+
+*nie znalazłem informacji*
 
 ## KOMITET WYBORCZY WYBORCÓW JANA ŚPIEWAKA - WYGRA WARSZAWA
 ### Agata Wanda Wiśniewska-Zaleska
