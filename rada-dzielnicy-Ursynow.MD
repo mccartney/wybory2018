@@ -191,9 +191,34 @@ coaching)."
 
 ## KOMITET WYBORCZY WYBORCÓW NASZ URSYNÓW + OTWARTY URSYNÓW
 ### Cezary Tadeusz Holdenmajer
+
+- https://www.linkedin.com/in/cezary-holdenmajer-91890141/
+- absolwent prywatnych uczelni
+
 ### Lech Wojciech Królikowski
+
+- http://warszawa.wikia.com/wiki/Lech_Kr%C3%B3likowski
+- varsavianista
+- "doktor inżynier, nauczyciel, historyk, varsavianista, działacz samorządowy, do 2014 roku był przewodniczącym Rady Dzielnicy Ursynów."
+
 ### Angelika Izabela Jasik
+
+- https://www.linkedin.com/in/angelika-jasik-b944a1165/
+- studentka
+
 ### Tadeusz Porębski
+
+- (?) pracuje w Passie: http://www.passa.waw.pl/kontakt
+
 ### Dorota Makarewicz
+
+*nie znalazłem informacji*
+
 ### Jarosław Sebastian Płaskociński
+
+*nie znalazłem informacji*
+
 ### Agnieszka Natalia Kik-Głowacz
+
+- https://pl.linkedin.com/in/agnieszka-kik-g%C5%82owacz-3a9508121
+- pedagog szkolny w SP343
