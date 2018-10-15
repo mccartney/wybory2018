@@ -53,12 +53,46 @@ karierę."
 
 ## KOALICYJNY KOMITET WYBORCZY PLATFORMA.NOWOCZESNA KOALICJA OBYWATELSKA
 ### Sylwia Krajewska
+
+- obecna radna dzielnicy (2014-2018): http://ursynow.pl/radni/sylwia-krajewska-2/
+- autorka nieszczęśliwie wysłowionego pomysłu progów zwalniających na ścieżkach rowerowych
+
 ### Krystian Jerzy Malesa
+
+- https://www.linkedin.com/in/krystian-malesa-7b954bb0/?originalSubdomain=pl
+- obecny radny dzielnicy (2014-2018): http://ursynow.pl/radni/krystian-jerzy-malesa-2/
+- absolwent SGGW (2010)
+- http://www.krystianmalesa.pl/index.php/O_mnie
+
 ### Agnieszka Magdalena Pająk-Czech
+
+- pracowała (?) w Halo Ursynów:
+  https://www.haloursynow.pl/artykuly?autor=38 
+  Passie i innych
+
 ### Włodzimierz Bohdan Dębski
+
+- https://www.linkedin.com/in/w%C5%82odzimierz-d%C4%99bski-1a522288/?originalSubdomain=pl
+- "Zawodowy manager z ponad trzydziestoletnim doświadczeniem zdobytym na wszystkich szczeblach organizacyjnych, od technika IT po dyrektora generalnego. 
+[...] Wysoka odporność na stres, nieprzeciętne zdolności analityczne oraz umiejętności
+przywódcze."
+- działa w KOD Mazowsze: https://www.kod-mazowsze.pl/wybory-regionalne-kod-mazowsze-2017/wybory-kod-2017-wlodzimierz-debski/
+
 ### Marek Jacek Tomaszewski
+
+*nie znalazłem informacji*
+
 ### Małgorzata Bożena Wójcik
+
+*nie znalazłem informacji*
+
 ### Robert Marcin Wojciechowski
+
+- https://www.linkedin.com/in/robert-wojciechowski/
+- szef rady rodziców w SP340: http://www.sp340.pl/?url=szkola/rada-rodzicow.html
+- "20+ years professional experience gained working in different key positions and consulting on strategic projects realised across various industries (e-commerce, facility management, media, advertising, IT
+coaching)."
+- "Career Goal [..] the possibility of further professional growth by the synergistic use of the experiences within a dynamic organisation"
 
 ## KOMITET WYBORCZY WYBORCÓW KUKIZ'15
 ###  Krzysztof Piotr Grybski
