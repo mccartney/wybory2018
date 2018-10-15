@@ -161,12 +161,33 @@ coaching)."
 
 ## KOMITET WYBORCZY PRAWO I SPRAWIEDLIWOŚĆ
 ### Karol Roman Radziwiłł
+
+- "25-letni przedsiębiorca, prawnik"
+
 ### Anna Lew-Starowicz
+
+- https://www.linkedin.com/in/anna-lew-starowicz-6a981a11/
+
 ### Krzysztof Fido
+
+- https://www.linkedin.com/in/krzysztof-fido-72b573133/
+- pracuje w administracji samorządowej w powiecie piaseczyńskim
+
 ### Agnieszka Tutak
+
+*nie znalazłem informacji*
+
 ### Czesław Mirosław Andrusiewicz
+
+*nie znalazłem informacji*
+
 ### Teresa Maria Polak
+
+*nie znalazłem informacji*
+
 ### Wojciech Bobrowski
+
+*nie znalazłem informacji*
 
 ## KOMITET WYBORCZY WYBORCÓW NASZ URSYNÓW + OTWARTY URSYNÓW
 ### Cezary Tadeusz Holdenmajer
