@@ -1,4 +1,4 @@
-Lista kandydatów: http://warszawa.naszemiasto.pl/wybory-samorzadowe-kandydaci-wyniki/wy/4087?teryt_ref=146513
+Lista kandydatów: https://wybory2018.pkw.gov.pl/pl/geografia/146513/city_council/5
 
 (?) oznaczone informacje, których nie jestem pewien
 
@@ -129,11 +129,35 @@ coaching)."
 
 ## KOMITET WYBORCZY WYBORCÓW JANA ŚPIEWAKA - WYGRA WARSZAWA
 ### Agata Wanda Wiśniewska-Zaleska
+
+- (?) https://pl.linkedin.com/in/agata-wi%C5%9Bniewska-zaleska-8316883
+- http://contentzone.pl/ludzie/agata-wisniewska/
+- absolwentka WDiNP UW
+
 ### Maciej Artur Kasprzak
+
+*nie znalazłem informacji*
+ 
 ### Zuzanna Ewa Kowalska
+
+*nie znalazłem informacji*
+
 ### Jeremi Tadeusz Czarnecki
+
+- Experienced Consultant / Project Manager / Interim Manager
+- absolwent SGH
+
 ### Alicja Anna Żebruń
+
+- https://www.linkedin.com/in/alicja-%C5%BCebru%C5%84-b0209855/
+- dziennikarka, fotografka
+
 ### Krzysztof Jakub Nadratowski
+
+- https://twitter.com/fasturek
+- https://www.linkedin.com/in/krzysztof-nadratowski-56461112b/
+- student WDiNP UW
+- absolwent Batorego
 
 ## KOMITET WYBORCZY PRAWO I SPRAWIEDLIWOŚĆ
 ### Karol Roman Radziwiłł
