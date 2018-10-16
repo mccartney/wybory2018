@@ -1,6 +1,9 @@
 Lista kandydatów: https://wybory2018.pkw.gov.pl/pl/geografia/146513/city_council/5
 
-(?) oznaczone informacje, których nie jestem pewien
+*Subiektywnie wybrane obiektywne informacje o kandydatach*
+
+- (?) oznaczone informacje, których nie jestem pewien
+- nie wypisuję Facebooków
 
 # Okręg 5
 
