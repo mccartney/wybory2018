@@ -11,87 +11,170 @@ Lista kandydatów: https://wybory2018.pkw.gov.pl/pl/geografia/146501/dist_counci
 
 ### JANOWSKI Piotr 	53 	Warszawa 	
 
+*nie znalazłem informacji*
+
 ### ZAPOLSKI-DOWNAR Andrzej Mirosław 	71 	Warszawa 	otrzymano treść oświadczenia z IPN
+
+- lekarz dermatolog: https://www.znanylekarz.pl/andrzej-zapolski-downar/dermatolog/warszawa
 
 ### KOŁPA-SZYMAŃSKA Paulina Anna 	39 	Warszawa 	
 
+- prawnik: https://www.linkedin.com/in/paulina-kołpa-szymańska-125692111/
+- mieszka w Wilanowie
+
 ### WOLKE Bartłomiej 	35 	Warszawa 	
 
-### WAJSZCZUK Jolanta Dorota 	49 	Warszawa 	
+- pracuje w urzędzie dzielnicy Warszawa Białołęka
+
+### WAJSZCZUK Jolanta Dorota 	49 	Warszawa 
+
+- wiele lat pracy w bankach	
 
 ### JASIŃSKA Sylwia Maria 	52 	Warszawa 	
 
+*nie znalazłem informacji*
+
 ### KACPRZAK Arkadiusz Antoni 	70 	Warszawa 	
 
+*nie znalazłem informacji*
+
 ### BIENIASZ-ZĄBEK Lucyna Zofia 	68 	Warszawa 	
+
+- dyrektor szkoły SP336: http://www.sp336.szkolnastrona.pl/index.php?c=page&id=51
 
 ## KOMITET WYBORCZY POLSKIE STRONNICTWO LUDOWE
 
 ### TYSZKA-HEBDA Małgorzata Bożena 	57 	Warszawa 	
 
+- prawnik
+- (?) z Piaseczna
+
 ### WOJCIECHOWSKI Michał 	34 	Warszawa 	
+
+*nie znalazłem informacji*
 
 ### NAZARUK Paulina Małgorzata 	36 	Warszawa 	
 
+- pracuje w urzędzie marszałkowskim, kontroluje szpitale
+
 ### BUGAJCZYK Sławomir Wojciech 	40 	Warszawa 	
+
+*nie znalazłem informacji*
 
 ### TYTUS Aleksandra 	25 	Warszawa 	
 
+*nie znalazłem informacji*
+
 ### MISIAK Andrzej 	70 	Warszawa 	
+
+- lekarz
 
 ## KOALICYJNY KOMITET WYBORCZY PLATFORMA.NOWOCZESNA KOALICJA OBYWATELSKA
 
 ### GAJEWSKA Aleksandra Małgorzata 	29 	WARSZAWA 	
 
+- obecna radna Warszawy (2014-2018)
+- zaangażowana w kampanię Rafała Trzaskowskiego
+
 ### ŻYŁKA Tomasz Andrzej 	58 	Warszawa 	
+
+*nie znalazłem informacji*
 
 ### JANCZAR Ewa 	51 	Warszawa 	
 
+- obecna radna Warszawy (2014-2018)
+- pracowała (wcześniej?) w urzędzie marszałkowskim
+
 ### WOŹNIAK Robert Andrzej 	41 	Warszawa 	
+
+*nie znalazłem informacji*
 
 ### DĄBROWSKI Przemysław Sławosz 	47 	Warszawa 	
 
+- b. członek zarządu PZU
+
 ### PAWŁOWSKA Iwona 	46 	Warszawa 	
+
+*nie znalazłem informacji*
 
 ### KRÓLAK Renata Monika 	42 	Warszawa 	
 
+- pracuje w WFOŚiGW
+
 ### WYSZYŃSKI Maciej 	49 	Warszawa 	
+
+- obecny radny Warszawy (2014-2018)
 
 ## KOALICYJNY KOMITET WYBORCZY SLD LEWICA RAZEM
 
 ### GADZINOWSKI Piotr 	61 	Warszawa 	
 
-### WASILEWSKA Dorota Barbara 	60 	Warszawa 	
+- https://pl.wikipedia.org/wiki/Piotr_Gadzinowski
+
+### WASILEWSKA Dorota Barbara 	60 	Warszawa 
+
+*nie znalazłem informacji*	
 
 ### NIZIELSKI Mirosław Kazimierz 	76 	Warszawa 	
 
+- egzekutywa PPS
+- doktor inżynier
+
 ### FALISZEWSKI Tomasz Maria 	63 	Warszawa 	otrzymano treść oświadczenia z IPN
+
+*nie znalazłem informacji*
 
 ### KOZAKIEWICZ Małgorzata 	43 	Warszawa 	
 
+*nie znalazłem informacji*
+
 ### CZAJKA Włodzimierz Józef 	64 	Warszawa 	
+
+*nie znalazłem informacji*
 
 ### MAKOWSKA Zenobia Wiktoria 	75 	Warszawa 	
 
+*nie znalazłem informacji*
+
 ### IZDEBSKI Andrzej Bolesław 	72 	Warszawa 	
+
+*nie znalazłem informacji*
 
 ## KOMITET WYBORCZY WYBORCÓW KUKIZ'15
 
 ### SANKOWSKA-GRABCZUK Lidia Izabela 	32 	Warszawa 	
 
+- bywa zapraszana do telewizji w sprawach obyczajowych
+
 ### SKWIERAWSKI Paweł 	45 	Warszawa 	
+
+- dziennikarz muzyczny https://pl.wikipedia.org/wiki/Pawe%C5%82_Skwierawski
+- absolwent Czackiego
 
 ### KALICKI Marcin 	40 	Warszawa 	
 
+- https://twitter.com/marcinkalicki2
+
 ### JASTRZĘBSKI Ludomir Paweł 	70 	Warszawa 	
+
+*nie znalazłem informacji*
 
 ### OLEWNIK Agnieszka 	42 	Warszawa 	
 
+*nie znalazłem informacji*
+
 ### BRYCZKOWSKA Dorota 	41 	Warszawa 	
+
+- https://www.linkedin.com/in/dorota-bryczkowska-010b328a
 
 ### BUDREWICZ Paweł Marek 	43 	Warszawa 	
 
+- prawnik, specjalizuje się w rozwodach
+- http://www.pawelbudrewicz.pl/
+
 ### ZDROJKOWSKI Łukasz Przemysław 	24 	Warszawa 	
+
+- (?) pracuje w klinice koni SGGW: http://klinikakoni.sggw.pl/index.php/struktura-katedry/zaklad-rozrodu-zwierzat
 
 ## KOMITET WYBORCZY WYBORCÓW WOLNOŚĆ W SAMORZĄDZIE
 
